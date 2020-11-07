@@ -65,3 +65,16 @@ Em breve disponibilizaremos
 - https://youtu.be/NwEH9Ui4HV8
 - https://youtube.com/c/PurpleElla
 
+
+## Referências
+
+### Vídeos
+
+- Autismo em mulheres: um papo com a dra. Julia Trindade
+  - https://www.youtube.com/watch?v=2_qcsCQvRRw
+- Autismo - Autismo em Meninas Parte 1
+  - https://www.youtube.com/watch?v=8m3biKCBE-4
+- 122 - A Dificuldade do Diagnostico em Mulheres
+  - https://www.youtube.com/watch?v=fjulE8De__I
+  
+ 
