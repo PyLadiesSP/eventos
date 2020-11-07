@@ -77,4 +77,9 @@ Em breve disponibilizaremos
 - 122 - A Dificuldade do Diagnostico em Mulheres
   - https://www.youtube.com/watch?v=fjulE8De__I
   
- 
+### Podcast
+
+- Introvertendo 92 – Camuflagem no Autismo
+  - https://www.introvertendo.com.br/podcast/introvertendo-92-camuflagem-no-autismo/
+
+
