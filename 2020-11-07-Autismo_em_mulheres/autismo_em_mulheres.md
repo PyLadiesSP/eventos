@@ -42,28 +42,7 @@ Consumam os conteúdos com visão crítica.
 
 ## Vídeo do evento
 
-Em breve disponibilizaremos
-
-
-## Algumas referências citadas durante a elaboração do evento
-
-- https://inclusaohumanizada.com.br/
-- http://mulheraspie.blogspot.com/2014/01/mulheres-aspies-mulheres-adultas-com.html?m=1
-- http://www.asperger-training.com/sarah-hendrickx/
-- https://br-ie.org/pub/index.php/desafie/article/view/8787
-- https://estudio.r7.com/autismo-visibilidade-e-aceitacao-01102020
-- https://institutoneurosaber.com.br/tea-em-meninas-e-mulheres-sintomas/
-- https://progene.ib.usp.br/autismo-em-mulheres-os-custos-da-camuflagem-do-autismo/
-- https://www.bbc.com/portuguese/geral-47779342
-- https://www.instagram.com/tv/CG8mwLapafe/?igshid=1er7s4t4b3d7a
-- https://www.revistaautismo.com.br/diamundial/
-- https://www.uol.com.br/universa/noticias/redacao/2020/10/08/medicos-disseram-que-eu-inventava-sintomas-diz-professora-com-autismo.htm
-- https://www.youtube.com/watch?v=0qYQZzj4S3A&list=PLZIsN1eF7A5-s7fRpgNmYJj6r4gCOxf5A&index=2
-- https://www.youtube.com/watch?v=cKHS4pCKEIw&list=PLZIsN1eF7A5-s7fRpgNmYJj6r4gCOxf5A&index=30
-- https://youtu.be/cF2dhWWUyQ4
-- https://youtu.be/ixRSb00BplM
-- https://youtu.be/NwEH9Ui4HV8
-- https://youtube.com/c/PurpleElla
+Disponilizaremos o link após o evento.
 
 
 ## Referências
@@ -82,4 +61,52 @@ Em breve disponibilizaremos
 - Introvertendo 92 – Camuflagem no Autismo
   - https://www.introvertendo.com.br/podcast/introvertendo-92-camuflagem-no-autismo/
 
+
+### Textos
+
+- Delírios De Uma Mulher Aspie
+  - http://mulheraspie.blogspot.com/?m=1
+- Mulheres com Asperger e a Maternidade
+  - https://sindromedeasperger.blog/2018/05/29/mulheres-com-asperger-e-a-maternidade/
+- As pessoas me chamam de estranha e esquisita”, mulheres contam como é ser autista
+  - https://catarinas.info/as-pessoas-me-chamam-de-estranha-e-esquisita-mulheres-contam-como-e-ser-autista/
+- Tirar a máscara à síndrome de asperger no feminino
+  - https://estrelaseouricos.sapo.pt/temas/pedagogia/tirar-a-mascara-a-sindrome-de-asperger-no-feminino-18475.html
+
+
+- O custo da Camuflagem do autismo
+  - https://progene.ib.usp.br/autismo-em-mulheres-os-custos-da-camuflagem-do-autismo/
+
+- Disfarces que contribuem para o diagnóstico tardio do autismo em meninas
+  - https://www.uol.com.br/vivabem/noticias/redacao/2020/06/01/disfarces-que-contribuem-para-o-diagnostico-tardio-do-autismo-em-meninas.htm
+
+- Dia Mundial do Autismo: meninas autistas podem estar deixando de receber tratamento por falta - de diagnóstico correto
+  - https://g1.globo.com/ciencia-e-saude/noticia/2019/04/02/dia-mundial-do-autismo-meninas-autistas-podem-estar-deixando-de-receber-tratamento-por-falta-de-diagnostico-correto.ghtml
+- Como escondi meu autismo por décadas para me encaixar na sociedade
+  - https://www.uol.com.br/vivabem/noticias/bbc/2020/06/01/como-escondi-meu-autismo-por-decadas-para-me-encaixar-na-sociedade.htm
+
+
+- Diagnóstico Tardio do Fenótipo do Espectro do Autismo em Mulheres
+  - https://www.portalped.com.br/conteudo-especial/artigos-da-semana/diagnostico-tardio-do-fenotipo-do-espectro-do-autismo-em-mulheres/
+- Por que é mais difícil identificar os sintomas do Transtorno do Espectro do Autismo em mulheres?
+  - https://medium.com/tismoo-biotecnologia/por-que-%C3%A9-mais-dif%C3%ADcil-identificar-os-sintomas-do-transtorno-do-espectro-do-autismo-em-mulheres-a21d4bf60c10
+- Há diferenças entre homens e mulheres com autismo?
+  - https://autismoerealidade.org.br/2020/07/30/ha-diferencas-entre-homens-e-mulheres-com-autismo/
+- Autismo no feminino
+  - https://ameninaneurodiversa.wordpress.com/2019/09/11/autismo-no-feminino/
+
+
+- Por que o autismo em meninas se manifesta de forma diferente?
+  - https://www.pragmatismopolitico.com.br/2016/10/autismo-meninas-manifesta-forma-diferente.html
+- As mulheres que não sabem que são autistas
+  - https://pt.innerself.com/content/living/health/diseases-and-conditions/15906-the-women-who-don-t-know-they-re-autistic.html
+
+- Autismo em meninas
+  - https://blog.autismolegal.com.br/autismo-em-meninas/
+- TEA em meninas e mulheres – sintomas
+  - https://institutoneurosaber.com.br/tea-em-meninas-e-mulheres-sintomas/
+- O autismo se manifesta de forma diferente em meninas
+  - https://www.huffpostbrasil.com/michele-muller/o-autismo-se-manifesta-de-forma-diferente-em-meninas_b_12476290.html
+- Na minha pele. Mulheres relatam como é viver com autismo
+  - https://www.metropoles.com/brasil/saude-br/na-minha-pele-mulheres-relatam-como-e-viver-com-autismo
 
