@@ -31,6 +31,11 @@ Nessa mesa redonda, cinco mulheres autistas e envolvidas com tecnologia abordar�
 	- https://www.linkedin.com/in/suzana-cardoso-1225831ba/
 
 
+## Organização
+
+- PyLadies São Paulo
+
+
 ## ATENÇÃO
 
 ```
