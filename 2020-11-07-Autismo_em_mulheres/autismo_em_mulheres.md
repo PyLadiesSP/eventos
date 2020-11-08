@@ -47,7 +47,7 @@ Consumam os conteúdos com visão crítica.
 
 ## Vídeo do evento
 
-Disponilizaremos o link após o evento.
+https://www.youtube.com/watch?v=sVm6NaB_m7Y&feature=youtu.be
 
 
 ## Referências
